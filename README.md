@@ -1,0 +1,1 @@
+[Link to cv](https://Aliibnabdul.github.io/rsschool-cv/cv)
